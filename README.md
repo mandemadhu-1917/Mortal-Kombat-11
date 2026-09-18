@@ -216,4 +216,4 @@ Mortal Kombat 11 is available as a complete free version with all features and u
 Don’t miss out on the action! Download Mortal Kombat 11 now and join the fight!
 
 ---
-**Last updated:** 2026-09-18 12:51:23 UTC
+**Last updated:** 2026-09-18 17:00:11 UTC
